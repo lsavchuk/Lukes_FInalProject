@@ -1,2 +1,0 @@
-# Lukes_FInalProject
-NONE
